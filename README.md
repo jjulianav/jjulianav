@@ -1,4 +1,4 @@
-### Olá! Eu sou a Juliana Vitoria, bem vindo ao meu GitHub 😆
+### Olá! Eu sou a Juliana Vitoria, bem vindo ao meu GitHub😎
 
 ##
 
